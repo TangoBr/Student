@@ -8,9 +8,8 @@ Thomas Bridges 2 cause I didn't save the damn snippets
 
 ## To start
 
-* I was born in Utah
+* I was born in Utah https://unsplash.com/photos/uffQnKuJ-hc
 * Grew up in Augusta
-
 
 ### My hobbies  
 * Outdoor adventures(backpacking,hunting,fishing,spelunking)
