@@ -8,11 +8,12 @@ Thomas Bridges 2 cause I didn't save the damn snippets
 
 ## To start
 
-* I was born in Utah [started](https://unsplash.com/photos/uffQnKuJ-hc)
+* I was born in Utah [Probably what you thought of](https://unsplash.com/photos/uffQnKuJ-hc)
 * Grew up in Augusta (no need to show you)
 
 ### My hobbies  
 * Outdoor adventures(backpacking,hunting,fishing,spelunking,bushcraft)
+* *_Ancient Yogic lore_* [My master](https://isha.sadhguru.org/us/en)
 * Military weapons,tactics,training
 * **Travel** is my biggest passion
 
