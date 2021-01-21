@@ -1,6 +1,5 @@
 # Student
-Thomas  Bridges
-Thomas Bridges 2 cause I didn't save the damn snippets
+
 # _Thomas Bridges_
 
 ## *Who am I?*
