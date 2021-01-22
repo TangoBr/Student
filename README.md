@@ -24,4 +24,4 @@
 1. Make 6 figures doing it
 1. Become a global nomad until I'm sick of it, seeing all this world has to offer
 1. Settle down in the best place I found and live out my golden years
-1. Hopefully pass through mahasamadhi, at the isha ashram, or at the very least with a smile/giggle
+1. Hopefully pass on through mahasamadhi, at the isha ashram, or at the very least with a smile/giggle
