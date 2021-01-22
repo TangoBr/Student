@@ -12,10 +12,7 @@
 
 ### My hobbies  
 * Outdoor adventures(backpacking,hunting,fishing,spelunking,bushcraft)
-*   backapcking
-*   spelunking
-*   bushcraft
-
+    * why this not working?
 * *_Ancient Yogic lore_* [My master](https://isha.sadhguru.org/us/en)
 * Military weapons,tactics,training
 * **Travel** is my biggest passion
