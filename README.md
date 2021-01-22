@@ -5,12 +5,12 @@
 ## *Who am I?*
 
 
-## To start
+### To start
 
 * I was born in Utah [Probably what you thought of](https://unsplash.com/photos/uffQnKuJ-hc)
 * Grew up in Augusta (no need to show you)
 
-### My hobbies  
+#### My hobbies  
 * Outdoor adventures
     * backpacking
     * spelunking
